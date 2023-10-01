@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+Tamarisk / @OffsecExam
+
+My Discord : OffsecExam
+
 <!--
 **OffsecExam/OffsecExam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
