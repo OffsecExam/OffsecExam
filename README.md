@@ -2,7 +2,7 @@
 
 Tamarisk / @OffsecExam
 
-My Discord : OffsecExam (https://discordapp.com/users/850498850674573372)
+My Discord : OffsecExam (https://discordapp.com/users/850498850674573372). ⬇️ Join my server below to send me messages without having to send friend request!
 
 Join my server (mainly leak and exam news): https://discord.com/invite/Q9VGzV5EAp 
 
